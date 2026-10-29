@@ -1,1 +1,0 @@
-# Arte-T-cnicas-de-Pintura
